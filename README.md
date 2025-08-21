@@ -19,7 +19,7 @@
 
 📌 I’ll be updating my GitHub frequently with **new projects & cool changes** 🚀  
 
-🤝 Connect with me on [LinkedIn](www.linkedin.com/in/kaurrb28) — I’ll be posting updates on my learning journey & projects soon ✨  
+🤝 Connect with me on LINKED IN(www.linkedin.com/in/kaurrb28) — I’ll be posting updates on my learning journey & projects soon ✨  
 
 ---
 
