@@ -1,6 +1,5 @@
 ## Hi, I’m Balvir 🐧❄️✨  
-🎓 Polytechnic Software Development Student @ **Techtorium**  
-📊 Future Data Science & Business Student @ **AUT**  
+🎓 Polytechnic Software Developer
 💻 Lifelong learner — taking online courses to stay updated & grow my skills  
 
 🌱 Currently working on projects to stay constistance focusing on:  
